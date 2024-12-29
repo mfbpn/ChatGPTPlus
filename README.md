@@ -1,6 +1,6 @@
 # ChatGPT Plus共享账号购买
 
-购买地址：[银河录像局](https://nf.video/yinhe/web?sharedId=181259)
+购买地址：[银河录像局](https://nf.video/xmXCM)
 
 ## ChatGPT Plus账号简介
 
